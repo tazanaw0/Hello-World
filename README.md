@@ -1,3 +1,5 @@
 # Hello-World
-325 Trial 
-Hello, this is Teme, and this was a success!
+My name is Teme Azanaw 
+Art, of all sorts
+
+
