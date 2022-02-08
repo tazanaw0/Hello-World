@@ -1,2 +1,5 @@
 # Hello-World
-325 Trial 
+My name is Teme Azanaw 
++ Art, of all sorts
+
+
