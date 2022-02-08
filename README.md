@@ -1,5 +1,11 @@
 # Hello-World
 My name is Teme Azanaw 
-+ Art, of all sorts
++ Art
+  + Photography 
+  + Music 
++ Personal development 
+  + Physical training 
++ Gamer (Valorant) 
++ 
 
 
